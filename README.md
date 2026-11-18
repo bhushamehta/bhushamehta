@@ -1,6 +1,4 @@
 ## Hi there 😊
-- 🔭 I’m currently working on becoming a Hubber 
-- 🌱 I’m currently learning GitHub
 - 💬 Ask me about food, travel, wine and puppies
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love Improv theater and trained at the Second City
